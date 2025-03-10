@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **abdulahadkhan8720@gmail.com**
 
-- ⚡ Fun fact **I think i am hardworking**
+- ⚡ Fun fact **I think i am funny**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
